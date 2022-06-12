@@ -14,8 +14,7 @@ A crowbar and a crossbow
 
 rwby.wikia.com/wiki/Crescent_Rose
 
-Written by Alix
-]#
+Written by suck my PEEP :D
 
 
 @name Crescent Rose
